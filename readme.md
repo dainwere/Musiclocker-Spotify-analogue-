@@ -1,1 +1,1 @@
-# Music Locker. Always listen to music
+# Help me, please, with adaptive layount. Tkanks if you could!
